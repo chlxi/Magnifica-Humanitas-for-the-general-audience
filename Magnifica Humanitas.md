@@ -12,9 +12,21 @@ ___________________________
 INTRODUCTION
 
 The res novae of our time
-Two biblical images
 Building for the common good
 Remaining human
+
+CHAPTER TWO
+FOUNDATIONS AND PRINCIPLES OF THE SOCIAL DOCTRINE OF THE CHURCH
+
+         The equal dignity of all human beings
+         The supreme value of human rights
+The principles of Social Doctrine
+         The principle of the common good
+         The principle of the universal destination of goods 
+         The principle of subsidiarity
+         The principle of solidarity
+         The principle of social justice
+Integral human development
 
 CHAPTER THREE
 
@@ -75,7 +87,27 @@ CONCLUSION
 
 The construction site of our time
 
+INTRODUCTION
  
+5. It now falls to us to face the challenges of our time with clarity of thought and responsibility. It is necessary to establish adequate regulatory tools capable of upholding justice and curbing the distorting effects of technological power. Nevertheless, the issue is not limited to regulation. As Pope Francis warned, we must realistically ask ourselves who holds this power today and how they use it: “It must also be recognized that nuclear energy, biotechnology, information technology, knowledge of our own DNA, and many other abilities which we have acquired… have given those with the knowledge, and especially the economic resources to use them, an impressive dominance over the whole of humanity and the entire world.” [7] In the past, it was largely up to the State to guide and direct innovation. Today, however, the main drivers of development are private, often transnational, parties that are endowed with resources and the capacity to intervene that surpass those of many Governments. Technological power thus takes on an unprecedented, predominantly “private” aspect, which makes it even more challenging to discern, govern and direct such power toward the common good.
+
+6. For this reason it is necessary to begin a shared discernment process for identifying the spiritual and cultural roots of ongoing transformations. If we focus only on contingencies, we risk letting the succession of emergencies dictate the direction of our path. We are living through a rapid phase of transition, a “change of era,” in which — while some are vying for the future of new technologies and others dedicate themselves to reflecting on the matter — most people are watching and waiting, observing from afar and merely hoping for the best. For this very reason, crucial questions impose themselves on our conscience and can no longer be avoided: Where are we going? Toward what goal do we wish to orient ourselves? What direction should we choose as a people and as a human community?
+
+Building for the common good
+12. Secondly, building for the common good means accepting the limits and weakness of humanity without considering them an error to be corrected. Today, the human desire for fullness of life is at risk of being misled by deceitful goals, such as the prospect of a technology that promises to free us from all weakness, and models of wellbeing that leave behind entire populations. All too often, we place our hope in unlimited “upgrades,” in forms of progress that exacerbate inequalities, and in immediate solutions incapable of healing people’s wounds. As a result, while some pursue the illusion of unlimited self-assertion, many are deprived of basic necessities. True fulfilment is not achieved by eliminating weakness but through harmonious growth. It is found where freedom and responsibility are intertwined with mutual care and true solidarity, and where progress is measured by the dignity of each person and the good of all peoples.
+
+13. Thirdly, building a world in which everyone can flourish requires shared responsibility and courage. No one can single-handedly bear the weight of the challenges the world is facing, just as no one is so weak that they cannot play their part. All are given their own section of the wall: scientists and researchers, entrepreneurs and workers, educators and legislators, civil society, popular movements and faith communities. This is the logic of subsidiarity, which values the cooperation between generations, peoples, disciplines and cultures as the best way for fostering stability, prosperity and peace. We should not be intimidated by tensions or differences because they can become creative forces when guided by shared responsibility.
+
+14. Finally, building for the common good requires an evangelical language. We must avoid humiliating or antagonistic words, opting rather for a clarity that sheds light and a frankness that unlocks new possibilities. We cannot condone naïve enthusiasms, nor fuel unfounded fears. Instead, let us establish standards for discernment — the dignity of the human person, the universal destination of goods, the preferential option for the poor, care for our common home and peace — and let us translate these standards into practices such as responsible planning, the assessment of human and social impact, the inclusion of the most vulnerable, the promotion of digital literacy and guiding research and industry toward justice and peace.
+
+Remaining human
+
+15. In the recent Ordinary Jubilee Year of 2025, we walked as pilgrims of hope and were blessed with many graces. Strengthened by these gifts, we can move forward with confidence to face the arduous tasks and demanding challenges that lie ahead. In the era of artificial intelligence, when human dignity is threatened by new forms of dehumanization, ours is the pressing duty to remain profoundly human. We must lovingly safeguard the grandeur of humanity bestowed upon us, the splendor of which no machine can ever replace. True progress always stems from a heart open to others, an intelligence willing to listen and a will that seeks what unites rather than what separates.
+
+CHAPTER TWO
+
+FOUNDATIONS AND PRINCIPLES OF
+THE SOCIAL DOCTRINE OF THE CHURCH
 
 The equal dignity of all human beings
 
