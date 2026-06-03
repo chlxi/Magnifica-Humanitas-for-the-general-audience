@@ -8,4 +8,4 @@ Adapted from Pope Leo XIV's Magnifica Humanitas with Catholic and religious refe
 
 See commits to the Magnifica Humanitas.md file for the exact changes.
 
-Disclaimer: I am not a Catholic and do not associate this piece of work to any religion. This adapted piece seeks to provide an abridged version of Magnifica Humanitas for jounalists or academics, while keeping the original meaning as far as possible.
+Disclaimer: I am not a Catholic and do not associate this piece of work to any religion. I am not denoucing or trivialising Catholic teachings, rather I find the encyclical useful for all to read. Hence, this adapted piece seeks to make the encyclical more accessible to people of all (or none) religions, provide an abridged version of Magnifica Humanitas for jounalists or academics, while keeping the original meaning as far as possible.
