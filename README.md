@@ -3,8 +3,9 @@ Adapted from Pope Leo XIV's Magnifica Humanitas with Catholic and religious refe
 
 # Key Changes
 - Removed Chapter 1
+- Edited contents page to match
 - Removed all mention of "the Church" and religious metaphors, except Tower of Babel
-- Kept quotations from religious figures when relevant
+- Kept quotations from religious figures whenever relevant
 
 See commits to the Magnifica Humanitas.md file for the exact changes.
 
