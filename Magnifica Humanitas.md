@@ -18,8 +18,9 @@ Remaining human
 CHAPTER TWO
 FOUNDATIONS AND PRINCIPLES OF THE SOCIAL DOCTRINE OF THE CHURCH
 
-         The equal dignity of all human beings
-         The supreme value of human rights
+The equal dignity of all human beings
+The supreme value of human rights
+
 The principles of Social Doctrine
          The principle of the common good
          The principle of the universal destination of goods 
